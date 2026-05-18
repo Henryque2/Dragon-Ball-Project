@@ -8,3 +8,6 @@ Minha primeira tentativa para entrar no mundo da criação de jogos. Está cheio
 
 - [@Henrique (Criador)](https://github.com/Henryque2)
 - [@Sidimir P Souza (Co-criador)](https://github.com/SidimirPSouza)
+
+DRAGON BALL, DRAGON BALL Z, DRAGON BALL  GT, DRAGON BALL Z  KAI, DRAGON BALL SUPER :
+©Bird Studio/Shueisha, Toei Animation
